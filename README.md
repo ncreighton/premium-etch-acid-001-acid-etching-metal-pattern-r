@@ -1,0 +1,2 @@
+# premium-etch-acid-001-acid-etching-metal-pattern-r
+Tired of losing your most brilliant acid-etched patterns to forgotten chemical timings and scattered notes? The Acid Etching &amp; Metal Pattern Reveal Craft Studio transforms your chaos into a repeatable, documented system so every reveal is a masterpiece.  This Notion template solves the two biggest pain points in acid etching: tracking precise chemi
